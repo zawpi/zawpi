@@ -6,7 +6,7 @@
 
 
 # 💫 About Me:
-💻 I'm a developer..... i think cuz i like cats 
+💻 i like cats 
 
 
 ## 🌐 Socials:
