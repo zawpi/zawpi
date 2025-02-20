@@ -6,7 +6,7 @@
 
 
 # 💫 About Me:
-💻 i like cats 
+nothing 
 
 
 ## 🌐 Socials:
